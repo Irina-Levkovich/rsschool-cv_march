@@ -1,5 +1,5 @@
 # **Irina Levkovich**
-<img src="img/IMG_20221002_193744.jpg" alt="oops" style="width:200px;"/>
+<img src="IMG_20221002_193744.jpg" alt="oops" style="width:200px;"/>
 
 
 ### **Contact information:**
