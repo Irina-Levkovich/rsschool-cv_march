@@ -7,7 +7,7 @@
 #### * E-mail: *ilevkovich@my.com*
 #### * Telegram: *@irina_levkovich_8*
 #### * [GitHub](https://github.com/Irina-Levkovich)
-#### * [LinkedIn](*https://www.linkedin.com/in/irina-levkovich-668ab51bb/*)
+#### * [LinkedIn](https://www.linkedin.com/in/irina-levkovich-668ab51bb/)
 ---
 
 
